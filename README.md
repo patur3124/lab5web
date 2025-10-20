@@ -13,3 +13,10 @@
 ![jav61](https://github.com/user-attachments/assets/91de7899-f763-4c8f-96f0-b877b93016c9)
 # 7
 ![jav6](https://github.com/user-attachments/assets/7175f81a-609a-43c5-a1ff-f888e5ec0d4d)
+# 8
+![jav7](https://github.com/user-attachments/assets/951e92c1-7495-4cff-9804-e3655d2db125)
+# 9
+![jav8](https://github.com/user-attachments/assets/715e08fc-949a-484b-bd40-c950b59e8568)
+
+![jav9](https://github.com/user-attachments/assets/f46552f6-c41b-46e3-9c2d-c6d05c8b98c4)
+
